@@ -1,0 +1,6 @@
+- 👋 Hi, we are @expertlisting
+- 👀 We are interested in bot and blockchain development
+- 🏆 We are experted in Python and JavaScript
+- 🤝 We are available for hiring & deals
+- 📫 DM us from Telegram if you want to reach us: https://t.me/ferrouswroughtnaut
+- 📱 Our social media communities: https://t.me/expertlisting and https://twitter.com/expertlisting0
